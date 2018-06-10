@@ -1,1 +1,1 @@
-Lab ¹3 Variant 1
+Lab ¹3 Variant 1 Zaychenko Sergiy
